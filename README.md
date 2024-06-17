@@ -1,0 +1,1 @@
+# VPKarshakov20_RazrabodkaZadanie
